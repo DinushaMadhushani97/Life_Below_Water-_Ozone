@@ -7,3 +7,6 @@ Users can seamlessly contribute to the well-being of marine life by filling out 
 Explore the various functionalities of the system, and thank you for your commitment to the betterment of life below water. 💙🐠
 
 Happy donating! 🌍
+
+
+-Dinusha Premathilaka-
